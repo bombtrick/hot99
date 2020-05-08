@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## hot99 24/7 radio station
 
 You can use the [editor on GitHub](https://github.com/bombtrick/hot99/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
